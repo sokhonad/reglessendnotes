@@ -50,4 +50,4 @@ Nous nous réservons le droit de mettre à jour cette politique de confidentiali
 
 Si vous avez des questions ou des préoccupations concernant cette politique de confidentialité, veuillez nous contacter à l'adresse suivante :
 
-**[sendnotesappgestion@gmail.com]**  
+**[diakarousokhonacp@gmail.com]**  
